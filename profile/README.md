@@ -1,1 +1,1 @@
-# 🎓 INIALUM (INIAD 同窓会)
+# 🎓 INIALM - INIAD Alumni Meetings
